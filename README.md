@@ -18,3 +18,7 @@ Wolfey vymyslel tým který při idealní hře v teorii mohl porazit nejvic domi
 
 Wolfey se svým vlastnoručně udělaným týmem vyhral 1. místo a dokazal že neexistuje věc jako nejsilnějši tým
 a jedinej duvod proč byl ten tým tak dominujici byl že ostatni byli přiliš spatní aby ho porazili
+
+A proto je WolfeyVGC považovan jako nejsilnějši a nejlepši hrač v double battles formatu
+
+"And this time the crowd cheers for me, not against me"
