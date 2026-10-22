@@ -11,6 +11,9 @@ až tedy na jednoho.
 "How to stop an unstopable team".
 Wolfey vymyslel tým který při idealní hře v teorii mohl porazit nejvic dominujici tým v historii pokemonu.
 ![Wolfey](Obrazky/R.jpg)
+
+[WolfeyVGC YouTube](https://www.pokemon.com/us/play-pokemon/worlds/2016/teams/masters)
+
 "1400 people showed up to this tournament hoping and dreaming to win the entire thing... But it wasnt enough!"
 
 Wolfey se svým vlastnoručně udělaným týmem vyhral 1. místo a dokazal že neexistuje věc jako nejsilnějši tým
